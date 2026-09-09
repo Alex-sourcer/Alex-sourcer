@@ -6,5 +6,5 @@
 
 -💬 Ask me about new life opportuinties. The next challenge in your career is just a message away ;)
 
--📫 How to reach me: amariana@growara.com
+-📫 How to reach me: alexmm930@gmail.com
 
